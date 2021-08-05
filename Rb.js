@@ -30,3 +30,4 @@ SALARY EXPECTATION
 i dont doubt AKQA will offer me a competatative salary within the company standards, it seems i will have great development opportunity and experience of working at your company, I am sure we can come to an agreement on the salary.
 
 Based on my experience in web development field i believe a salary in min 8L/anm
+https://teams.microsoft.com/l/meetup-join/19%3ameeting_NzY2OTg5NjYtYzg5Yi00OWQyLTk0OGEtOTYzMmUxZWE0ODI0%40thread.v2/0?context=%7b%22Tid%22%3a%2204428250-7f88-4b2c-98c2-47408d42ea10%22%2c%22Oid%22%3a%22ab83a75d-2a9b-4a99-81ea-08e7a484e7fc%22%7d
